@@ -14,3 +14,5 @@ I see the way ur acting like someone makes frustrated.
 Life is u fall u down u...
 AvirlYeast
 Acb
+
+Slavoc Zizek !
